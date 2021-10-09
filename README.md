@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **React and Javascript**
 
-- 📫 How to reach me **ashukumar2001Gmail.com**
+- 📫 How to reach me **ashukumar2001@gmail.com**
 
 - 📄 Know about my experiences [https://bit.ly/3AkZW32](https://bit.ly/3AkZW32)
 
