@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ashukumar2001@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3AkZW32](https://bit.ly/3AkZW32)
+- 📄 Know about my experiences [https://bit.ly/3GCbItx](https://bit.ly/3GCbItx)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
